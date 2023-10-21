@@ -1,1 +1,1 @@
-# Analysis of Oprah's post
+Analysis of Oprah Winfrey's post
